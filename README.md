@@ -1,2 +1,2 @@
 # Pcenter
-The best weekly newsletter you can find. http://noticiasonlinepcenterinformatica.epizy.com/
+The best weekly newsletter you can find. http://pcenterinformatica.epizy.com/
